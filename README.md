@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **junejesterperilla@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1brufPScxMfF8kHo5EYRK3L5DAWYXhN1Q/view?usp=drivesdk](https://drive.google.com/file/d/1brufPScxMfF8kHo5EYRK3L5DAWYXhN1Q/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1fJIfL2e8J2i5y2-7-fCETFVO5BQymePk/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
